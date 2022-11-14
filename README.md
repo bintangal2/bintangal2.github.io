@@ -1,0 +1,1 @@
+# bintangal2.github.io
